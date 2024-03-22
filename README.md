@@ -5,4 +5,3 @@ and data driven technologies.In my spare time you will probably find me doing sp
 
 I born and raised in 🇮🇳. I'll share my knowledge through different platforms
 
-https://krishnaheroor.wordpress.com
